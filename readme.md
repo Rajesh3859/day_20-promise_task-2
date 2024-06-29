@@ -1,0 +1,1 @@
+promise_2 : anime serial logos and names
